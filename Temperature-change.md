@@ -1,3 +1,2 @@
 ## What's the amount of temperature the world is increasing by?
 
-Global Warming is known as the result from warming that greenhouse gases do from trapping heat in the atmosphere. Scientists have observed and pointed at humans as the main suspect of the cause of the warming trend that has been happening since the mid 20th century. Gases that have contributed to the greenhouse effect are ater vapor, Nitrous oxide, Methane, Carbon dioxide.
